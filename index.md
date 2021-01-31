@@ -1,1 +1,1 @@
-  # Dzelenak je buzerant.
+  # Dzelenak je smelinar.
